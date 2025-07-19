@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Jeril!
+# 👋 Hi, I'm Najer!
 
 ## 🚀 About Me
 
